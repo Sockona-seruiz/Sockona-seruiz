@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Sockona_
+- 👀 I’m interested in being
+- 🌱 I’m currently learning how to survive
+- 💞️ I’m looking to collaborate on saving the world
+- 📫 How to reach me ig : @Sockona_
