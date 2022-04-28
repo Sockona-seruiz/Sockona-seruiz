@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Sockona_
-- 👀 I’m interested in being
+- 👋 Hi, I’m a famous OTP Vel'koz
+- 👀 I’m interested in earning money to help animals
 - 🌱 I’m currently learning how to survive
 - 💞️ I’m looking to collaborate on saving the world
 - 📫 How to reach me ig : @Sockona_
